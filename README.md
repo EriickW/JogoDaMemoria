@@ -1,0 +1,17 @@
+# Principais autores Modernistas:
+- Carlos Drummond de Andrade
+- Vinicius de Moraes 
+- Cecília Meireles
+- Jorge de Lima 
+- Murilo Mendes
+- Rachel de Queiroz
+- Erico Verissimo
+- Graciliano Ramos
+- José Lins do Rego
+- Jorge Amado....
+- Manuel Bandeira
+- Mário de Andrade 
+- Oswald de Andrade
+- Clarice Lispector 
+- Guimarães Rosa
+- João Cabral de Melo Neto 
